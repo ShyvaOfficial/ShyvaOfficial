@@ -1,4 +1,4 @@
-![Brand](https://cdnb.artstation.com/p/assets/images/images/024/858/699/original/pixel-jeff-divoom.gif?1583771904?size=2048)
+![Brand](https://cdnb.artstation.com/p/assets/images/images/024/858/699/original/pixel-jeff-divoom.gif?1583771904?size=1048)
 
 # Shyva
 
